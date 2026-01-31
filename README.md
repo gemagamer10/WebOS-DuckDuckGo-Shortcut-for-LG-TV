@@ -1,0 +1,1 @@
+# WebOS-DuckDuckGo-Shortcut-for-LG-TV
